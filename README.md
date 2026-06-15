@@ -20,7 +20,7 @@ i just do random stuff and fork browsers
 
 ## projects
 
-my lazyass has no repos
+my lazyass has no repos (yet)
 
 ## currently
 
