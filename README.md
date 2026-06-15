@@ -29,7 +29,7 @@ a gay fuckass
 ## my stuff
 
 @officialstickie on discord
-my fucking profile that you're on right now
+and also my fucking profile that you're on right now
 
 ## cool stuff about me
 
