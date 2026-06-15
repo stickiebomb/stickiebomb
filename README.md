@@ -1,16 +1,40 @@
-## Hi there 👋
+# fuck off (or not)
 
-<!--
-**stickiebomb/stickiebomb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## me (why the fuck do you want to know about me fuck off lad)
 
-Here are some ideas to get you started:
+fuckass who plays too many games
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## i hate you
+
+i just do random stuff and fork browsers
+
+## 
+
+**Languages:** JavaScript, TypeScript, Python, Ruby, Golang, Html, CSS, Brainfuck, and Mojo
+
+**Frontend:** nothing fuck off
+
+**Backend:** nothing fuck off
+
+**Tools & Platforms:** a lot of stuff you jackass
+
+## projects
+
+my lazyass has no repos
+
+## currently
+
+a gay fuckass
+
+## my stuff
+
+@officialstickie on discord
+my fucking profile that you're on right now
+
+## cool stuff about me
+
+uhhhh im a game speedrunner
+
+---
+
+alright fuck off now
